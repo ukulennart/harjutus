@@ -1,1 +1,1 @@
-Tere hommikust!
+Tere hommikust! - TUdeng 2 muudatused!
